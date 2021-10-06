@@ -1,6 +1,6 @@
 ## Hi friends 
 
-My name is Meina Gong (she/her). I was born and raised in Jian, Jiangxi, and I am currently a web developer.
+My name is Meina Gong (she/her). I was born and raised in Jian, Jiangxi, and I am currently a developer.
 
 I am deeply interested in studying technology that impact web growth and development, most specifically user experience design. Long term, I also hope to contribute by supporting children of their conditions and circumstances, so they feel supported by technology and science.
 
