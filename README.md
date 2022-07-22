@@ -8,4 +8,4 @@ I wasn’t always convince I was smart enough to do engineering jobs, but during
 
 My other lifelong passion is volunteering: I volunteer in 2018, and although I cannot volunteer due to the pandemic, volunteering continue to be an important and meaningful part of my life.
 
-I love spicy and fish, the color pink, reading, traveling, and jogging. I value the human connection, presence, and people with integrity. I   hope some of what I share resonates with you, and while I know I have a lot to learn, I appreciate you all being part of my journey.
+I love spicy and fish, the color pink, reading, traveling, and yoga. I value the human connection, presence, and people with integrity. I   hope some of what I share resonates with you, and while I know I have a lot to learn, I appreciate you all being part of my journey.
